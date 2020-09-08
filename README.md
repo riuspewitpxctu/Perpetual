@@ -1,2 +1,2 @@
-# The eternal loop for a troubled traveler.
+# The eternal loop of a troubled traveler.
 We are all that remains
